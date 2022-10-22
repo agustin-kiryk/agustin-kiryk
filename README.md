@@ -23,7 +23,7 @@ Here are some ideas to get you started:
 
 - 📫 How to reach me **agustin.kiryk@gmail.com**
 
-- 📄 Know about my experiences [https://www.linkedin.com/in/agustin-kiryk-0a083b24a/](https://www.linkedin.com/in/agustin-kiryk-0a083b24a/)
+- 📄 Know about my experiences [https://www.linkedin.com/in/agustin-kiryk](https://www.linkedin.com/in/agustin-kiryk-0a083b24a/)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
